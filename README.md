@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...989
 - 📫 How to reach me ...6
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...gf
+- 
 
 <!---
 dennicson971/dennicson971 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
