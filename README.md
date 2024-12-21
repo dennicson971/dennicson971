@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...989
 - 📫 How to reach me ...635
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...gf
+- ⚡ Fun fact: ...gf62
 - 
 
 <!---
